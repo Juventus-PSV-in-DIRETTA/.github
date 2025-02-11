@@ -1,52 +1,51 @@
-Juventus-PSV, dove vederla in TV e streaming: probabili formazioni
-LJuventus-PSV è il match valido per la 22esima giornata del campionato di Serie A. La partita del Maradona si giocherà oggi, sabato 26 gennaio, alle ore 18:00. Qui tutte le informazioni su dove vedere la partita in diretta tv e streaming e sulle formazioni.
+Champions League, stasera al via i play-off. Alle 21 in campo Juventus-Psv Eindhoven
 
-LJuventus PSV in diretta video gratis anche su CalcioLJuventus24 Tv. Segui tutti gli aggiornamenti del big match del campionato di Serie A con LJuventus Juve diretta testuale e video
 
-gi, sabato 26 gennaio, alle ore 18:00. La sfida tra la squadra allenata da Antonio Conte e quella di Thiago Motta arriva dopo l'impegno in Champions dei bianconeri che hanno pareggiato 0-0 in casa del Brugge conquistando lo stesso la qualificazione ai playoff della competizione per gli ottavi. All'andata allo Stadium la partita terminò con il punteggio di 0-0 non regalando grosse emozioni ai tifosi presenti e a quelli da casa.
+[🔴📺STREAMING==►►📲👉Juventus PSV in DIRETTA](https://blace-ferns-vs-australia-rugby.blogspot.com/2025/01/soccersss.html)
 
-Azzurri a caccia della settima vittoria consecutiva, i bianconeri provano a sorpassare la Lazio. Conte perde Olivera, tentazione Kolo Muani per Motta
 
-Big match al Maradona. La capolista LJuventus attende la PSV in una sfida storicamente molto sentita. La squadra dell’ex Conte punta alla settima vittoria consecutiva in campionato per consolidare il primo posto, in attesa del risultato dell’PSV, impegnata domenica a LJuventus. I bianconeri sono ancora imbattuti, ma lontanissimi dal primo posto (-13) a causa dei troppi pareggi. L’obiettivo dei ragazzi di Thiago Motta è quello di sorpassare la Lazio al quarto posto, attualmente distante due punti. Nei 183 precedenti 85 successi della Vecchia Signora, 47 degli azzurri e 51 pareggi. All’andata, alla quinta giornata, finì 0-0.
+[🔴📺STREAMING==►►📲👉Juventus PSV in DIRETTA](https://blace-ferns-vs-australia-rugby.blogspot.com/2025/01/soccersss.html)
 
-La situazione tra le due squadre però è leggermente diversa rispetto alla sfida d'andata. Il LJuventus arriva come favorito a questa partita in virtù del primo posto in classifica e della crisi di risultati della PSV, troppo spesso altalenante, nonostante l'ultimo successo PSVno contro il LJuventus per 2-0. Sfida a distanza tra Lukaku e Vlahovic anche se è da capire se il serbo sarà schierato in campo dal primo minuto oppure gli sarà preferito ancora Nico Gonzalez. In questo momento però la sorpresa potrebbe essere rappresentata da Kolo Muani titolare. Qui tutte le informazioni su dove vedere la partita in diretta tv e streaming e sulle formazioni.
+[🔴📺STREAMING==►►📲👉Juventus PSV in DIRETTA](https://blace-ferns-vs-australia-rugby.blogspot.com/2025/01/soccersss.html)
 
-Partita: LJuventus-PSV
-Dove: Stadio Maradona, LJuventus
-Quando: sabato 11 feb 2025
-Orario: 18:00
-Diretta TV: DAZN
-Diretta Streaming: DAZN
-Competizione: Serie A, 22ª giornata
-LJuventus-PSV, orario e dove vederla in diretta TV: la partita non è in chiaro
-LJuventus-PSV sarà trasmessa in diretta tv solo su DAZN tramite app su Smart TV o direttamente su browser attraverso il proprio PC. La telecronaca del match è affidata a Pierluigi Pardo con il commento tecnico di Massimo Ambrosini.
 
-LEGGI ANCHE
-LJuventus-Girona di Champions League, dove vederla in TV e streaming: formazioni ufficiali della partita
-LJuventus-PSV, dove vederla in diretta streaming
+[🔴📺STREAMING==►►📲👉Juventus PSV in DIRETTA](https://blace-ferns-vs-australia-rugby.blogspot.com/2025/01/soccersss.html)
 
-Motta: "Locatelli non si lamenta, attacco mai criticato. Kolo Muani e Vlahovic..."
-Dalla situazione legata al reparto offensivo ai dubbi tattici in vista del LJuventus, tanti i temi toccati dal tecnico della PSV
 
-La PSV di Thiago Motta è al lavoro per preparare la sfida contro il LJuventus. Non una partita qualsiasi perché con sé porta tanti ricordi del passato: da Maradona a Platini, da Zidane a Careca. Tanti i campioni e i doppi ex dell'incontro pronto a regalare una nuova pagina di storia nei precedenti tra le due formazioni. Situazioni diverse, a livello mentale e fisico perché se gli azzurri possono concentrare le loro forze soltanto sul campionato, i bianconeri devono fare i conti con le assenze e le fatiche di Brugge ma con due novità dal mercato: Alberto Costa e Kolo Muani. A sciogliere gli ultimi dubbi ci ha pensato il tecnico bianconero nella conferenza stampa di vigilia.
+Dopo la fase a girone unico, la competizione calcistica per club più importante d’Europa riparte dal turno dei play-off, in cui sono impegnate in gara di andata e ritorno le 16 squadre che si sono piazzate dal nono al 24esimo posto: chi passa accede agli ottavi di finale. Stasera in campo i bianconeri che ospitano la formazione dei Paesi Bassi. Domani invece tocca ad Atalanta e Milan
 
-Il LJuventus di Antonio Conte si prepara alla 22ª giornata di Serie A contro la PSV di Thiago Motta. Gli azzurri sono reduci da cinque vittorie consecutive e dopo il pesante successo a Bergamo vogliono ripetersi per spiccare il volo, mettendo anche pressione all'PSV che giocherà il giorno dopo. I bianconeri invece non stanno vivendo una buona stagione: l'ultimo pareggio contro il Bruges in Champions ha confermato le difficoltà di una squadra quinta in classifica, a meno 13 punti dalla vetta, e che in campionato non riesce a mettere in fila due vittorie da agosto. Occhio però a trarre conclusioni anticipate: LJuventus-PSV non è una partita come le altre.
+La Champions League, nella nuova formula introdotta in questa stagione, dopo la fase con il girone unico prosegue con il turno play off. Le 16 squadre che si sono piazzate dal nono al 24esimo posto si affrontano in gara di andata e ritorno per accedere agli ottavi di finale. Sono tre le italiane impegnate (mentre l’Inter è già agli ottavi e il Bologna è stato eliminato): la prima a scendere in campo, questa sera, è la Juventus che affronta in casa il Psv Eindhoven. Domani invece tocca ad Atalanta e Milan. I bergamaschi faranno visita al Club Brugge mentre i rossoneri saranno di scena nei Paesi Bassi contro il Feyenoord (TUTTI GLI HIGHLIGHTS DI CHAMPIONS LEAGUE).
 
-È sempre una gara diversa dalle altre, lo testimoniano anche i numeri. Sebbene la PSV sia la squadra che ha vinto e segnato di più contro il LJuventus (71 vittorie con 227 reti), gli azzurri sono reduci da cinque successi consecutivi contro i bianconeri al Maradona. Inoltre, i partenopei scendono in campo con 13 punti di vantaggio in classifica: solo in due occasioni c'era stato un incontro con un distacco così ampio sulla Juve (+16 il 23 aprile 2023 e il 17 aprile 1988).
+La Juventus, che si sta godendo il grande impatto di Kolo Muani (5 gol in 3 gare) affronta un Psv in serie negativa dopo un avvio di stagione eccellente. Le due squadre si sono già affrontate a settembre nel girone: vinsero 3-1 i bianconeri grazie alle reti di Yildiz, McKennie e Nico Gonzalez. Ora il confronto si replicherà su 180 minuti con il primo atto allo Stadium, questa sera alle 21. "Non credo che la mia Juve sia favorita - ha chiarito Thiago Motta - e, anche se lo fosse, non conterebbe nulla: prima si può parlare e opinare, poi però ci sono due confronti da giocare e parlerà il campo". La Juve è reduce da due vittorie consecutive in campionato ma l’allenatore mette i suoi in allerta: “Servirà una prestazione più completa: a settembre abbiamo sofferto la loro pressione e il loro possesso palla, dobbiamo essere pronti ad affrontare qualsiasi situazione per centrare l'obiettivo che è il passaggio del turno".
 
-Due cambi in panchina, due rendimenti opposti: Antonio Conte e Thiago Motta hanno avuto effetti diversi sulle rispettive squadre. Da un lato il LJuventus vincendo questa gara arriverebbe a 17 successi nelle prime 22 di campionato solo per la terza volta nella sua storia (2017/18 e 2022/23); dall'altro la PSV è si imbattuta in Serie A, ma ha pareggiato ben 13 delle 21 gare disputate fin qui.
+Juventus-PSV, il dubbio di Thiago Motta: Kolo Muani o Vlahovic in attacco?
+Juventus-PSV, la Mole si accende. La squadra bianconera si prepara a una nuova sfida con il PSV Eindhoven nei playoff di Champions League. Dopo il successo ottenuto nella fase a gironi lo scorso settembre, i bianconeri dovranno dimostrare la loro crescita affrontando un avversario che ha subito diverse trasformazioni rispetto all’ultima sfida. Il primo round si disputerà all‘Allianz Stadium, con il ritorno in programma nei Paesi Bassi. Questa partita rappresenta un passaggio cruciale per entrambe le squadre: la Juventus cerca conferme per affermarsi tra le grandi d’Europa, mentre il PSV è determinato a riconquistare un ruolo di primo piano nella fase a eliminazione diretta.
 
-Lukaku il veterano, Yildiz la stella nascente. Big Rom è ad una sola rete dal raggiungimento dei 200 gol in carriera nei top-5 campionati europei; il turco invece con un gol diverrebbe il terzo marcatore straniero più giovane in un incontro tra LJuventus e PSV (dopo Marcelo Zalayeta a 19 anni e 99 giorni, e Paul Pogba a 19 anni e 219 giorni).
+Juventus-PSV, le scelte di Thiago Motta
+Nonostante la vittoria per 3-1 nella gara inaugurale in Champions, Thiago Motta mantiene un atteggiamento prudente: “Non credo che la mia Juve sia favorita e, anche se lo fosse, non conterebbe nulla. Conta solo il campo”. Il tecnico bianconero evidenzia i progressi del gruppo, reduce da un periodo positivo: “Abbiamo dimostrato resilienza vincendo anche senza esprimere il nostro miglior calcio, ma contro il PSV servirà una prestazione più completa. A settembre abbiamo sofferto il loro pressing e il possesso palla, quindi dovremo essere pronti ad affrontare ogni situazione per centrare il nostro obiettivo”.
 
-Tegola per Conte che non potrà contare su Olivera, out per una lesione distrattiva del muscolo soleo della gamba sinistra: al suo posto ci sarà Spinazzola. Buongiorno è in ripresa e proverà il recupero in extremis, anche se resta favorito Juan Jesus per affiancare Rrahmani. Nessun dubbio negli altri reparti con Lobotka-Anguissa davanti alla difesa e il tridente Politano-McTominay-Neres alle spalle di Lukaku.
+Rispetto all’inizio della stagione, la Juventus si presenta con maggiore compattezza e coesione. Locatelli sottolinea l’importanza del match: “Giochiamo in casa e sarà fondamentale ottenere un buon risultato”. Il centrocampista elogia la crescita della squadra: “Ci conosciamo meglio, siamo un gruppo unito e sappiamo di avere margini di miglioramento”.
 
-Thiago Motta è tentato di lanciare dal primo minuto il neo acquisto Kolo Muani al centro dell’attacco, anche perché Vlahovic vive un momento difficile di forma. Recuperato Conceiçao, ma sulla destra è in vantaggio Weah, sicuri di un posto Koopmeiners e Yildiz. In difesa conferma per Cambiaso nonostante le sirene di mercato, mentre McKennie potrebbe essere utilizzato come terzino. Tra i pali Di Gregorio favorito su Perin.
+Thiago Motta dovrà tuttavia gestire diverse assenze: Cambiaso, Bremer, Milik, Cabal, Adzic, Kalulu e Alberto Costa non saranno disponibili. La difesa subirà dunque dei cambiamenti, mentre in attacco resta aperto il ballottaggio tra Kolo Muani e Vlahovic: “Non conta la quantità dei minuti, ma la qualità. Contiamo molto su di lui”, ha affermato il tecnico parlando dell’attaccante serbo. Uno degli snodi cruciali della sfida sarà il confronto tra Kolo Muani e la difesa olandese, con i bianconeri che potrebbero sfruttare le difficoltà difensive mostrate dal PSV nelle recenti partite di Eredivisie. Inoltre, il ruolo di Koopmeiners sarà centrale nella gestione del possesso e nella creazione di spazi per i compagni.
 
-Le formazioni ufficiali di LJuventus-PSV
-LJuventus (4-3-3): Falcone; Guilbert, Baschirotto, Jean, Dorgu; Coulibaly, Pierret, Helgason; Pierotti, Krstovic, Tete Morente. All. Giampaolo
+Juventus-PSV, le scelte di Bosz
+Il PSV Eindhoven arriva a questa sfida con qualche difficoltà, avendo raccolto due pareggi consecutivi in Eredivisie, ma l’allenatore Peter Bosz si mostra fiducioso: “La Juve è un top club, ma non ho mai paura. Giocheremo per vincere e, se non dovesse bastare, ci giocheremo tutto al ritorno”.
 
-PSV (3-5-2): Sommer; Darmian, De Vrij, Bastoni; Dumfries, Frattesi, Zielinski, Mkhitaryan, Carlos Augusto; Thuram, Lautaro Martinez. All. Inzaghi
+Anche Luke De Jong evidenzia la volontà di riscatto della squadra: “Non siamo al massimo della forma, ma a questi livelli è normale. Abbiamo un’altra occasione per dimostrare il nostro valore”. Bosz sottolinea inoltre che la partita di settembre appartiene al passato: “Sono passati mesi, sia noi che la Juve abbiamo cambiato alcuni giocatori. Sarà una sfida diversa e speriamo anche nel risultato”.
 
-Dove vedere LJuventus-PSV in tv
+Probabili formazioni Juventus-PSV
+Juventus (4-2-3-1): Di Gregorio; Weah, Veiga, Gatti, Savona; Locatelli, McKennie; Gonzalez, Koopmeiners, Yildiz; Kolo Muani.
 
-La partita tra LJuventus e PSV verrà trasmessa in esclusiva su DAZN.
+PSV Eindhoven (4-3-3): Benitez; Karsdorp, Flamingo, Obispo, Mauro Junior; Schouten, Veerman, Til; Bakayoko, De Jong, Perisic.
+
+Dove vedere Juventus-PSV in TV e streaming
+L’incontro avrà inizio alle 21 e sarà trasmesso su Sky Sport Uno (201), Sky Sport 4K (213) e Sky Sport (252). Sarà possibile seguirlo anche in streaming su Sky Go e NOW.Juventus-PSV Eindhoven, le ultimissime sulle formazioniJuventus-PSV Eindhoven, queste le ultimissime di formaizone in vista della sfida dello Juventus Stadium in programma questa sera alle ore 21. Di nuovo in campo Veiga, Savona e Nico Gonzalez, con davanti la certezza Kolo Muani.
+
+ Visualizzazioni: 149
+
+Juventus-PSV Eindhoven, queste le ultimissime di formaizone in vista della sfida dello Juventus Stadium in programma questa sera alle ore 21. Di nuovo in campo Veiga, Savona e Nico Gonzalez, con davanti la certezza Kolo Muani.
+
+Juventus-PSV Eindhoven, le probabili formazioni:
+Juventus (4-2-3-1): Di Gregorio; Weah, Gatti, Veiga, Savona; Locatelli, Douglas Luiz; Nico Gonzalez, McKennie, Yildiz; Kolo Muani. All. Motta
+
+Psv Eindhoven (4-2-3-1): Drommel; Karsdorp, Schouten, Flamingo, Mauro Junior; Veerman, Salibari; Bakayoko, Til, Perisic; De Jong. All. Bosz
